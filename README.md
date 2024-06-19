@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sab0001goat
-- 👀 I’m interested in ...Theology
+- 👀 I’m interested in ...Web development
 - 🌱 I’m currently learning ... HTML, CSS, Javacript
 - 📫 How to reach me ... sabakupreishvili07@gmail.com
 - 😄 Pronouns: ... he/xer/Родди Рич
